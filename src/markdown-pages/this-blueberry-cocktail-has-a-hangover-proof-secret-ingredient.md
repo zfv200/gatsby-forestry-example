@@ -4,7 +4,7 @@ title: This Blueberry Cocktail Has A Hangover-Proof Secret Ingredient
 date: 2019-11-25
 
 ---
-To test-edit celebrate the art of hair wellness and Art Basel Miami Beach, [Nutrafol](https://nutrafol.com/) has partnered with the Arlo Hotels and [Absolut Elyx](https://www.absolutelyx.com/) to launch a specialty cocktail featuring our [Vitamin B-Booster](https://nutrafol.com/vitamin-b-booster).
+To celebrate the art of hair wellness and Art Basel Miami Beach, [Nutrafol](https://nutrafol.com/) has partnered with the Arlo Hotels and [Absolut Elyx](https://www.absolutelyx.com/) to launch a specialty cocktail featuring our [Vitamin B-Booster](https://nutrafol.com/vitamin-b-booster).
 
 Donning a smooth and subtle infusion of blueberry and B vitamins, the Absolut B-Boost Energy Elixir is a creative twist on a classic Manhattan. The recipe calls for Absolut Elyx, antioxidant-rich blueberry water, Bianco vermouth, and [Nutrafol Vitamin B-Booster](https://nutrafol.com/vitamin-b-booster), which is chock-full of restorative B vitamins.
 
