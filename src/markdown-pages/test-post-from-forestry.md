@@ -1,4 +1,4 @@
 ---
-
+path: "/hello"
 ---
 helloooooooo
