@@ -2,3 +2,5 @@
 label: Blog Post
 hide_body: false
 fields: []
+pages:
+- src/markdown-pages/test-post-from-forestry.md
